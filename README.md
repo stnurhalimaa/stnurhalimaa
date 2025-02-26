@@ -5,5 +5,4 @@ Saya seorang mahasiswi Teknik Informatika di Universitas Muslim Indonesia yang t
 
 ### 📫 Kontak Saya:
 - ✉️ Email: halimahdrr160@gmail.com
-- 📷 Instagram: stnurhalimaa
- 
+- 📷 Instagram: https://www.instagram.com/stnurhalimaa?igsh=MTc2Z2J0eTRyc3BscQ%3D%3D&utm_source=qr
